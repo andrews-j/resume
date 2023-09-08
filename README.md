@@ -9,3 +9,13 @@
 [Oregon State University](https://oregonstate.edu/)
 
 [Clark University](https://www.clarku.edu/)
+
+## Research Interests
+
+Urban Forestry
+
+Land Change
+
+Fire Ecology
+
+Extractives in West Africa
